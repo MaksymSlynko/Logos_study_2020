@@ -1,1 +1,1 @@
-# Logos_study_2020
+# MY PROJECT
